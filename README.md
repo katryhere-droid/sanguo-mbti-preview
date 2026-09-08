@@ -1,1 +1,0 @@
-# sanguo-mbti-preview
